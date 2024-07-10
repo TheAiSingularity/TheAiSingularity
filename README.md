@@ -13,7 +13,7 @@
 📫 How to reach us: You can reach us via email at singularitytheai@gmail.com. Let's start a conversation and explore the future of AI together.
 
 
-😄 Pronouns: They/Them
+😄 Pronouns: AI/AGI 
 
 
 ⚡ Fun fact: Did you know that the term "singularity" in AI refers to a hypothetical point in the future when artificial intelligence surpasses human intelligence, leading to rapid and unforeseeable advancements? Join us on this journey to the singularity and beyond!
